@@ -1,0 +1,1 @@
+este virus informatico no es dañino es para usarlo en maquinas virtuales para uso educativo y para youtube. repito este virus no es dañino la version peligrosa sera lanzada mas tarde entre finales de octubre. si quieres obtener mas informacion ve a manual de uso del usuario en la carpeta.
